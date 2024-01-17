@@ -84,3 +84,67 @@
     
         the period in the day when light from the sun begins to appear in the sky
 
+    - scraps
+
+        small pieces of food that have not been eaten and are usually thrown away
+
+    - limp
+
+        to walk slowly and with difficulty because of having an injured or painful leg or foot
+
+    - bowlegged
+
+        罗圈腿
+
+    - ham 火腿
+
+    - lodging
+
+        a temporary place to stay
+
+    - odor 异味
+
+        a particular smell, esp. a bad one
+    
+    - filthy 十分肮脏的
+
+        extremely or unpleasantly dirty
+    filthy odors 肮脏的气味
+
+
+    - shriveled
+
+        干瘪
+        a shriveled old man
+
+    - grin
+
+        a wide smile
+
+
+    - bow
+
+        鞠躬
+
+    - weary 疲劳的
+
+        very tired, especially after working hard for a long time
+    
+    - bracelet 
+
+        a piece of jewellery that is worn around the wrist or arm
+
+    - coo
+
+        to speak in a soft, gentle, or loving way
+
+    - miser /ˈmaɪ.zɚ/ 守财奴
+
+        someone who has a strong wish to have money and hates to spend it
+
+    - wretched /ˈretʃ.ɪd/ 可怜的，悲惨的
+
+
+
+
+    
