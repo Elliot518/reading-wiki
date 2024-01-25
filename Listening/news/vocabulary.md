@@ -7,5 +7,11 @@ Just one day to go before Republican voters cast their ballots in New Hampshire 
 
 abortion /əˈbɔːrʃ(ə)n/ 堕胎
 
+### fart /fɑːrt/
+放屁
+```
+take your trousers off to fart
 
+脱了裤子放屁
+```
 
