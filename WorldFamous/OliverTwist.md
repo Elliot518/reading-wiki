@@ -77,7 +77,7 @@
 
     - handkerchief
 
-        手帕
+        a square piece of cloth or paper used for cleaning the nose or drying the eyes when they are wet with tears(手帕)
 
     
     - dawn
@@ -146,5 +146,10 @@
 
 
 
-
+- neat
     
+    tidy, with everything in its place
+
+- eager
+
+    wanting very much to do or have something, especially something interesting or enjoyable
